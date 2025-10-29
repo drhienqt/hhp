@@ -1,2 +1,2 @@
 # hhp
-Life site, kichen, famr
+Life site, kichen, farm
